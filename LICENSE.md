@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with automatic Polymarket Addon | prediction-market-scanning + risk-management, the #1 addon. Includes prediction-market-scanning and
 
 
 
